@@ -1,1 +1,0 @@
-# namirachmi.github.io
